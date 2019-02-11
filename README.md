@@ -1,8 +1,11 @@
 # test
 learn how to use github
-hhahahahahahah
+haha
 
 HAHAHAHAHAHAHAHAHAHAHAH
 How are you?
-I am fine.
+
 This is Jingxue
+
+Today is monday
+I am happy
