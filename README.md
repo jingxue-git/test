@@ -2,7 +2,7 @@
 learn how to use github
 hhahahahahahah
 
-哈哈哈哈哈哈哈哈
+HAHAHAHAHAHAHAHAHAHAHAH
 How are you?
 I am fine.
-Thankyou
+This is Jingxue
